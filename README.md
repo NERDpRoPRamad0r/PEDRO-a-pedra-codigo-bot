@@ -1,2 +1,2 @@
 # PEDRO-a-pedra-codigo-bot
-é apneas uma pedra....
+é APENAS uma pedra....(ou será que não?)
